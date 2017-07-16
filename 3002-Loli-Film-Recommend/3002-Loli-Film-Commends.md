@@ -35,7 +35,7 @@
 而剧情上、也是萝莉大叔的友谊，只是比较特殊。<br>
 ![photo](/3002-Loli-Film-Recommend/photoes/7.png)<br>
 萝莉也是从小美到大，那种华丽丽的美，看看现在长大后的她、美的自带光环。<br>
-![photo](/3002-Loli-Film-Recommend/photoes/8.jpg)<br>
+![photo](/3002-Loli-Film-Recommend/photoes/8.JPG)<br>
 
 5、《爱丽丝城市漫游记》荷兰<br>
 ![photo](/3002-Loli-Film-Recommend/photoes/9.png)<br>
@@ -191,7 +191,7 @@
 儿童小说改编、美丽的故事。<br>
 萝莉气质爆表啊，尤其是后来的这部：<br>
 24、《友情天地》<br>
-![photo](/3002-Loli-Film-Recommend/photoes/31.jpg)<br>
+![photo](/3002-Loli-Film-Recommend/photoes/31.JPG)<br>
 
 25、《罗恩岛的秘密》爱尔兰<br>
 ![photo](/3002-Loli-Film-Recommend/photoes/32.png)<br>

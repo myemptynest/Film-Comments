@@ -35,7 +35,7 @@
 而剧情上、也是萝莉大叔的友谊，只是比较特殊。<br>
 ![photo](/3002-Loli-Film-Recommend/photoes/7.png)<br>
 萝莉也是从小美到大，那种华丽丽的美，看看现在长大后的她、美的自带光环。<br>
-![photo](/3002-Loli-Film-Recommend/photoes/8.png)<br>
+![photo](/3002-Loli-Film-Recommend/photoes/8.jpg)<br>
 
 5、《爱丽丝城市漫游记》荷兰<br>
 ![photo](/3002-Loli-Film-Recommend/photoes/9.png)<br>
@@ -163,7 +163,7 @@
 
 家人和环境的影响不仅在于孩子们的心理，也在于个人特质、进而影响未来。<br>
 20、《斯黛拉》法国<br>
-![photo](/3002-Loli-Film-Recommend/photoes/27.png)<br>
+![photo](/3002-Loli-Film-Recommend/photoes/27.jpg)<br>
 法国两个社会层级背景下的孩子、展现了不同层级的人们的生活环境及其可预见的未来。<br>
 金发是犹太人家境很好父母是学者重视教育，棕发是酒吧老板的女儿父母是底层人物只关心当天的生活。<br>
 金发要学音乐舞蹈爱读名著读哲学，棕发爱看电影知道明星接触过社会各色人物还会玩暴力。<br>
@@ -191,7 +191,7 @@
 儿童小说改编、美丽的故事。<br>
 萝莉气质爆表啊，尤其是后来的这部：<br>
 24、《友情天地》<br>
-![photo](/3002-Loli-Film-Recommend/photoes/31.png)<br>
+![photo](/3002-Loli-Film-Recommend/photoes/31.jpg)<br>
 
 25、《罗恩岛的秘密》爱尔兰<br>
 ![photo](/3002-Loli-Film-Recommend/photoes/32.png)<br>

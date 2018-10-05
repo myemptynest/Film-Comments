@@ -3,7 +3,6 @@
 ![image](image/1003.png)  
 ![image](image/1004.png)  
 ![image](image/1005.png)  
-![image](image/1006.png)  
 ![image](image/1007.png)  
 ![image](image/1008.png) 
 ![image](image/1009.png) 
